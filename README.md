@@ -2,4 +2,4 @@
 - 👀 I’m interested in program
 - 🌱 I’m currently learning on high school
 - 💞️ I’m looking to collaborate on any company
-- 📫 How to reach me guiojo on discord or my email guiojo7891@gmail.com
+- 📫 How to reach me guiojo on discord or my email alexandrematos1711@gmail.com
